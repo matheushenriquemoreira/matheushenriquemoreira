@@ -3,11 +3,15 @@
 
 About me
 
-💼 Mobile developer Student
+📚 Mobile developer Student
 
 🎓 computer engineering student
 
-❤️ I love providing amazing experiences through codes
+❤️ I love technology
+
+🚀 Always better than yesterday
+
+
 
 💬 Ask me about anything, my contacts are below
 
